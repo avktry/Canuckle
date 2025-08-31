@@ -29,7 +29,7 @@ Click below to see the real answers.
 
 ### ✅ Canuckle Answer Today
 Want the full **Canuckle word game answer today**?  
-[Click here to view today’s Canuckle answer on our website](https://shorturl.at/5nVdI)
+[Click here to view today’s Canuckle answer on our website](https://www.wordiply.site/)
 
 This link takes you to our main page where we post the **Canuckle today answer** every morning for free.  
 Bookmark it so you can always find the latest **Canuckle hints for today** and **Canuckle answer today free** without missing a day.
